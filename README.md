@@ -1,0 +1,1 @@
+# avtomobil-ijarasi-korxonasini-avtomatlashtirish
